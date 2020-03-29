@@ -1,0 +1,2 @@
+# Fairiz
+Ez life
